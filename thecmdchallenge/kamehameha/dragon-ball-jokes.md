@@ -6,14 +6,7 @@ How many Super Saiyans does it take to change a light bulb? Just one, but it wil
 
 I don't find Dragon Ball Z jokes to be funny..... "Just Saiyan" 
 
-What do Saiyans wear to the beach? Trunks. 
-
-What did Vegeta say when he got his tuition bill? "It's over 9000" 
-
-Where does Vegeta get the energy to fly? Red Bullma, it gives you wings. 
-
-What is Goku's favorite instrument of destruction? A Piccolo (flute). 
-
+What do Saiyans wgit
 How do you get in touch with an android? By using a CELL Phone. 
 
 Did you know Frieza wasn't very popular in school? His brother was COOLER. 
